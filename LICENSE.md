@@ -1,4 +1,4 @@
-# 
+# Personalizado Nitro PDF predefinições para Mac OS | Novo Nitro PDF predefinições para PC Windows. Com cálculos de diária e doações filantrópicas — otimizado para máximo desempenho em cada plataforma.
 
 
 
